@@ -1,5 +1,5 @@
 # Group 2 Afternoon
-## Gratien UWAU - 2309001514
+## Gratien UWACU - 2309001514
 ## Furaha Berthille - 2401001240
 ## HASINGIZWIMANA Paul - 25011105
 ## HABINSHUTI Elise - 2405000464
